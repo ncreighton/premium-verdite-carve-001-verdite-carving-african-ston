@@ -1,0 +1,2 @@
+# premium-verdite-carve-001-verdite-carving-african-ston
+Tired of losing track of your verdite commissions, stone inventory, and design sketches scattered across notebooks and apps? The Verdite Carving &amp; African Stone Craft Studio Notion template consolidates everything into one elegant, purpose-built system for artisans who work with this revered African gemstone.  This template solves the chaos of mana
